@@ -33,7 +33,7 @@ Please list two areas of the assignment you'd like to **discuss further with you
 
 Here's a walkthrough of implemented user stories:
 
-<img src='https://giant.gfycat.com/MilkyGoldenAtlanticsharpnosepuffer.gif' title='Video Walkthrough' width='' alt='Video Walkthrough' />
+<img src='https://giant.gfycat.com/PolishedCalculatingFoxterrier.gif' title='Video Walkthrough' width='' alt='Video Walkthrough' />
 
 ## Notes
 
